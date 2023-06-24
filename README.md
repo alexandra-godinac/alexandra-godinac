@@ -6,5 +6,4 @@
 - 💬 Ask me about ... anything
 - 📫 How to reach me: ... [LinkedIn](https://www.linkedin.com/in/alexandra-godinac-66093322b/)
 - 😄 Pronouns: ... She/Her
-- ⚡ Fun fact: ... I like CSS way too much
 
